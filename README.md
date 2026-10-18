@@ -1,4 +1,4 @@
-# 💫 Shravan K S:
+# Hi 👋, i'm Shravan K S
 Computer Science & AI/ML Undergrad
 
 
